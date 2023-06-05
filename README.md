@@ -1,3 +1,3 @@
 ### Hi there 👋, I'm Austin.
 
-Nothing special here just another human telling a computer what todo.
+Just another human that enjoys telling a computer what todo.
